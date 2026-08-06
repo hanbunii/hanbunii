@@ -10,7 +10,7 @@
 
 ⠀ ꒰৯ ྐ✚ ₊　[Rentry](https://rentry.co/noellesitita)
 
- ![image_alt](https://i.postimg.cc/wBRWS7qD/Untitled20-20260803111237.png)
+ ![image_alt](https://i.postimg.cc/RFcymHVr/Untitled25-Restored-20260805232538.png)
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀![image_alt](https://i.postimg.cc/4xs7DMXQ/Untitled20-20260803112739.png)
 
 
