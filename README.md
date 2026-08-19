@@ -1,16 +1,15 @@
-![image_alt](https://i.postimg.cc/fbSH6Jzk/Untitled20-20260803111837.png)
+![image_alt](https://i.postimg.cc/Vsj7fGNC/Untitled39-20260818221348.png)
+
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀    ༘⋆     ㅤ𝐇𝐚𝗻    𓏵    𝗭𝐞𝐧ㅤ ⠀⠀⠀⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀ㅤㅤ🄰𝗿ᩴ𝗼𝗮꯭𝗰ᥱ᩠ ㅤ 
       
 ㅤ   ⠀⠀⠀⠀⠀⠀⠀ ㅤ៸៸ㅤㅤ ₍ᐢ. ̫.ᐢ₎ㅤ𝟒𝘁𝗲𝗲𝗻ㅤ .ೀㅤᛝྀིྀིྀ
 ⠀ 
 
- ![image_alt](https://i.postimg.cc/jjn8GLxH/Untitled19-20260803104941.png)
+ ![image_alt](https://i.postimg.cc/WpM9NW4Z/Untitled38-20260818221159.png)
  ㅤ୬     𔖳    ׅㅤ^᪲᪲᪲𖹭  𝐒𝐞𝐧𝐝  𝐰𝐡𝐢𝐬𝐩𝐞𝐫  𝐭𝐨  𝐭𝐚𝐥𝐤  ! !  𓊌  💭  ˒˓
 
 ⠀ ꒰৯ ྐ✚ ₊　[Rentry](https://rentry.co/noellesitita)
 
- ![image_alt](https://i.postimg.cc/RFcymHVr/Untitled25-Restored-20260805232538.png)
-⠀⠀⠀⠀⠀⠀⠀⠀⠀![image_alt](https://i.postimg.cc/4xs7DMXQ/Untitled20-20260803112739.png)
-
-
+ ![image_alt](https://i.postimg.cc/pVD0WGd8/Untitled39-20260818221357.png)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀
